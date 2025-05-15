@@ -17,3 +17,8 @@
 4. In a separate bowl, beat the eggs and add them to the mixture. Stir until well combined.
 5. Gradually add the milk and vegetable oil to the mixture, continuing to stir.
 6. Pour the batter into a greased and floured 9x13-inch baking pan.
+
+## Additional Directions by Matthew:
+7. Bake for 20 minutes or until golden brown.
+8. Let the cookies cool for at least 30 minutes before eating.
+9. Enjoy your freshly baked cookies with family and friends!
