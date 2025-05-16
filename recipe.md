@@ -6,6 +6,11 @@
 - 3/4 cup unsweetened cocoa powder
 - 1 cup chocolate chips
 - 1 tsp vanilla extract
+- 1 tbsp instant coffee
+- chocolate chunks
+- eggs
+- milk
+- vegetable oil
 - ...
 
 ## Instructions:
